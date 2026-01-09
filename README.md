@@ -6,4 +6,4 @@ Es el “falso Bizum por error”, alguien envía dinero supuestamente por equiv
 [2. xataka](https://www.xataka.com/basics/timo-falso-bizum-error-como-funciona-como-evitar-esta-estafa)
 [3. maldita.es](https://maldita.es/malditobulo/20231003/bizum-devolver-dinero-clonar-cuenta/)
 
-https://www.lacronica.net/wp-content/uploads/2023/04/bizum-696x488.jpg
+
